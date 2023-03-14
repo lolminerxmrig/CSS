@@ -1,6 +1,5 @@
 # Captcha Solving Service
 
-deathbycaptcha and 2captcha and more
-for sales
+I sell deathbycaptcha and 2captcha and more accounts at the lowest price.
 
 https://t.me/amirq34
